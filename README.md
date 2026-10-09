@@ -1,1 +1,1 @@
-# Eddyi8.github.io
+# EddyI8.github.io
